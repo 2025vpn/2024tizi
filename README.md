@@ -22,7 +22,7 @@
 基础套餐月付只要14元，支持不满意退款。
 
 ### 2.奈思云-性价比机场推荐
-👉[**直达官网注册**](https://cn.51tz.cc/nisi)
+👉[**直达官网注册**](https://go.1vpn.cc/nisi)
 
 奈思云（NisiCloud）是一家较新成立的网络加速服务提供商，使用Shadowsocks协议并提供IPLC全专线服务。它支持流媒体解锁，包括Netflix、Disney+、HBO、TVB等，也提供全节点的ChatGPT支持。机场主位于海外，支持永久有效的流量计费套餐。
 
